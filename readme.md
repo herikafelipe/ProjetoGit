@@ -1,0 +1,1 @@
+Quem é a rainha do pop? Lady Gaga. Então cale sua boca.
